@@ -1,4 +1,4 @@
-
+Enhance Notion for macOS with ultimate Automation for Notion for macOS - task automation and custom shortcuts, the #1 automation. Includes task automation and custom shortcuts for
 
 
 
